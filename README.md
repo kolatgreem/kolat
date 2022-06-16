@@ -1,2 +1,0 @@
-# kolat
-thank
